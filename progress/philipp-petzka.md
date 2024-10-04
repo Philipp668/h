@@ -1,3 +1,17 @@
+2024-10-04 Fri: Stablecoin Research, general communication. 
+
+2024-10-03 Thu: Identify potential Third-party stablecoin provider, Research, Selection and strategy
+
+2024-10-02 Wed: State of Harmony Report to identify challenges, Set-up
+
+2024-10-01 Tue: Research on Harmony, Set-up, General communication
+
+
+
+
+
+
+
 Welcome Philipp!
 
 https://medium.com/@philipp.petzka
